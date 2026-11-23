@@ -1,1 +1,1 @@
-Dokumentirovanie PO - primery
+Dokumentirovanie PO - teoriya i primery
