@@ -1,1 +1,1 @@
-Dokumentirovanie PO
+Dokumentirovanie PO - teoriya
